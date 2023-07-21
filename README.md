@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on Web
+- 🌱 I’m currently learning Philosophy 
+- 👯 I’m looking to collaborate on Web
+- 🤔 I’m looking for help with All
+- 💬 Ask me about What is Life?
+- 📫 How to reach me: i'm anywhere
+- 😄 Pronouns: ...
+- ⚡ Fun fact: Capitalist's is bitch.
